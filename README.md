@@ -1,4 +1,4 @@
-# sms-activate review: Grizzly SMS Review 2026 — Receive SMS Online From $0.01 With Fast Activation
+# [sms-activate review: Grizzly SMS Review 2026 — Receive SMS Online From $0.01 With Fast Activation](https://sms-man.com/?ref=nima)
 
 ---
 
